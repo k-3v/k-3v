@@ -12,7 +12,11 @@
     ゛ i'll never know you, like you know yourself
     ⋮  you'll never know me, like i know myself.
 
-<img width="386" height="259" alt="image" src="https://github.com/user-attachments/assets/c8a324ae-49bf-4d8e-9735-414bdab9b21f" />
 
 
-i love love love these of montreal songs theyrue so me... not like any1 cares though... looks around
+
+
+
+
+
+ㅤㅤㅤi love love love these of montreal songs theyrue so me... not like any1 cares though... looks around
