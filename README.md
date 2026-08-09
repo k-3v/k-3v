@@ -9,6 +9,8 @@
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/425183a4-c297-47b1-bd2f-15f8da1d38f7" />
 
+
+
     ゛ i'll never know you, like you know yourself
     ⋮  you'll never know me, like i know myself.
 
@@ -19,4 +21,4 @@
 
 
 
-ㅤㅤㅤi love love love these of montreal songs theyrue so me... not like any1 cares though... looks around
+ㅤㅤㅤ
