@@ -7,7 +7,7 @@
      i'd really like to but i'm just too shy!
 
 
-<img width="355" height="261" alt="image" src="https://github.com/user-attachments/assets/bd79d0c1-53f2-47f4-a941-2f10165cbc23" />
+<img width="355" height="261" alt="image (2)" src="https://github.com/user-attachments/assets/5592dc00-6512-4a83-a324-932e24b81b0b" />
 
 
 
